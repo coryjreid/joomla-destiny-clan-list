@@ -1,0 +1,1 @@
+Bungie Clan List PUBLIC
